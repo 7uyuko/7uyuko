@@ -1,5 +1,4 @@
 ## <p align="center"> HI
-<p align="center"> mandatory readme update
 ##### <p align="center"> limbus company and touhou
 ##### <p align="center"> i eat lcb167 and lcb2412 but im a big fat multishipper ok i m greedy and eat everything
 ##### <p align="center"> I LOVE HONG LU

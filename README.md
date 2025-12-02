@@ -7,4 +7,4 @@
 #### <p align="center"> PLEASE SIT WITH ME
 #### <p align="center"> i cant freakign put the land of truth gif wat hapeneped
 #### <p align="center"> ![](https://komarev.com/ghpvc/?username=7uyuko&color=5bffde&style=plastic&label=hong+lu+lovers)
-<p align="center"> <img width="900" height="400" alt="image" src="https://github.com/user-attachments/assets/9da8df99-21aa-450d-9776-88639006eddc" />
+<p align="center"> <img width="900" height="370" alt="image" src="https://github.com/user-attachments/assets/9da8df99-21aa-450d-9776-88639006eddc" />
